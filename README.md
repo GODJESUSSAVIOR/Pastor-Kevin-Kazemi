@@ -8,7 +8,7 @@
 
 https://docs.google.com/document/d/1qZVx-Ah-rVTqfLar_9lQ2RIw8sztWSyLDVQ_lbVOqZg
 
-docs.google.com/document/d/1Ao3200_HzGo_naiLykdd73O5ucixS-eoXuLr_RO2jow
+https://docs.google.com/document/d/1Ao3200_HzGo_naiLykdd73O5ucixS-eoXuLr_RO2jow
 
 https://youtube.com/@kazemikevin
 https://facebook.com/kazemikevin
